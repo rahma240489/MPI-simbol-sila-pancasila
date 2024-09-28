@@ -1,0 +1,1 @@
+# MPI-simbol-sila-pancasila
